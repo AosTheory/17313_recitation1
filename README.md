@@ -1,3 +1,3 @@
-# 313recitatiion1
+# 313recitation1
 
-Aaron Selesio aselesi
+Aaron Selesi aselesi
